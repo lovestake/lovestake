@@ -13,8 +13,17 @@ making this !! ignore the uglyness u might see
 <img src="https://komarev.com/ghpvc/?username=volatiletimes&color=741e2f&base=200&style=flat&label=_ _i_want_a_poptart_ _" /> <p align="center">
 
 <details align="center">
-<summary>ㅤ ${\textsf{\color{#741e2f}oo text}}$ ( wip. ) </summary> 
+<summary>ㅤ ${\textsf{\color{#741e2f}info!}}$ ( wip. ) </summary> 
 </details>
+<br>
+
+<details align="center">
+<summary>ㅤ ${\textsf{\color{#741e2f}interests / int!}}$ ( wip. ) </summary> 
+vsmp <3, cowboys smp, any pow smp, hermitcraft, <br>
+mcyt in general!, args, creepypasta, marbel hornets, <br>
+winx club, monster high, gachiakuta, sanda, twst, <br>
+cyberpunk 2077, the boys, star wars, a lot of animes,<br>
+there's a lot more, i swear i'll have a rentry at somepoint..</details>
 <br>
 
 <p align="center">
