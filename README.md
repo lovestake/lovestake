@@ -22,7 +22,8 @@ making this !! ignore the uglyness u might see
 vsmp <3, cowboys smp, any pow smp, hermitcraft, <br>
 mcyt in general!, args, creepypasta, marbel hornets, <br>
 winx club, monster high, gachiakuta, sanda, twst, <br>
-cyberpunk 2077, the boys, star wars, a lot of animes,<br>
+cyberpunk 2077, the boys, star wars, a lot of animes, <br>
+dc, marvel, postal, ut aus/dr (fandom iwvvec pls!!), <br>
 there's a lot more, i swear i'll have a rentry at somepoint..</details>
 <br>
 
