@@ -1,32 +1,66 @@
-username chnage...woah!! the first of many in 2026 i fear..
-making this !! ignore the uglyness u might see
+<p align="center"> using old codee, yawns..please don't use it or use it as inspo UNLESS you asked, tyy!! <br>
+making this pretty at somepoint...just fucking around rn </p>
 
 <p align="center">
-<img src="https://64.media.tumblr.com/25b6770651716751d4603948b149a325/85313a10d142e98e-7f/s400x600/7993a16246ccc5833e6ad2cceebb96cb5643c19f.pnj" width="600" height="600%""/>
-</p>
-
-<p align="center">
-<img src="https://i.ibb.co/dJx5zxBv/the-giggle-i-giggled.png" width="300" height="300%""/>
-</p>
-
-<p align="center">
-<img src="https://komarev.com/ghpvc/?username=volatiletimes&color=741e2f&base=200&style=flat&label=_ _i_want_a_poptart_ _" /> <p align="center">
-
+work in progress. ( 11.8.25 )
 <details align="center">
-<summary>ㅤ ${\textsf{\color{#741e2f}info!}}$ ( wip. ) </summary> 
+<summary> checklist. </summary>
+  ✓ㅤmain parts (info, imgs, etc) <br>
+  ✓ㅤtop &. bottom dividers. <br>
+  ~ㅤstamps, blinkies, etc. <br>
+  ~ㅤextended info. <br>
+  ✓ㅤmini dni &&. int area. <br>
+  ~ㅤlinks <br>
+  ~ㅤcreds. <br>
+  
+</details>
+<br>
+  
+<p align="center">
+<img src="https://gifs4crds.carrd.co/assets/images/image07.gif?vca07fc73a" width="600" height="600%""/>
+</p>
+
+<p align="center">
+</a>
+<img src="https://komarev.com/ghpvc/?username=volatiletimes&color=741e2f&base=200&style=flat&label=_ _i_want_a_poptart_ _" /> <p align="center">
+<br>
+  
+<img src="https://64.media.tumblr.com/f798113a4e704df4bf43a047109f2be6/c61e50ab3144b8d4-2d/s2048x3072/9b9bef25903655e16011fd62c6cea97bf93a7390.pnj"  align="left" width="40%"> <p align="center">   ${\textsf{\color{#f2356e}LYR}}$ <br> <img src="https://dividers.crd.co/assets/images/gallery04/1196d7bc.png?v=05d33f91">
+<p align="center"> ${\textsf{\color{#f2356e}Cello}}$ㅤᵒʳㅤ<i> Vulpine </i> ⠀⸝⠀ <i> Alyce.</i> <br> 19yo ( ${\textsf{\color{#f2356e}12.11}}$ )ㅤ♡ㅤHe⠀⸝⠀She₊ <br> text,, vsmppilled <br> ${\textsf{\color{#f2356e}˚₊·—̳͟͞͞♡⟢}}$ <br> textt!! <br> <img src="https://dividers.crd.co/assets/images/gallery04/1196d7bc.png?v=05d33f91">
+<p align="center">   ${\textsf{\color{#f2356e}LYR}}$
+<br>
+
+<p align="center">
+<img src="https://gifs4crds.carrd.co/assets/images/image07.gif?vca07fc73a" width="600" height="600%""/>
+</p>
+
+<details align="right">
+<summary> ❥ㅤ ${\textsf{\color{#f2356e}mini⎯⎯extended.}}$ </summary>
+mrrpp
 </details>
 <br>
 
-<details align="center">
-<summary>ㅤ ${\textsf{\color{#741e2f}interests / int!}}$ ( wip. ) </summary> 
-vsmp <3, cowboys smp, any pow smp, hermitcraft, <br>
-mcyt in general!, args, creepypasta, marbel hornets, <br>
-winx club, monster high, gachiakuta, sanda, twst, <br>
-cyberpunk 2077, the boys, star wars, a lot of animes, <br>
-dc, marvel, postal, ut aus/dr (fandom iwvvec pls!!), <br>
-there's a lot more, i swear i'll have a rentry at somepoint..</details>
+<details align="right">
+<summary> ❥ㅤ ${\textsf{\color{#f2356e}userboxes}}$ ( wip. ) </summary>
+</details>
 <br>
 
-<p align="center">
-<img src="https://64.media.tumblr.com/4274d1ad4f52f71ed8bdfd4c7ee5ac4d/85313a10d142e98e-a7/s400x600/68aa245e3b6236cf526ec81e820c2388bb5f9589.pnj" width="600" height="600%""/>
-</p>
+<details align="right">
+<summary> ❥ㅤ ${\textsf{\color{#f2356e}blinkies}}$ ( wip. ) </summary> 
+</details>
+<br>
+
+<details align="right">
+<summary> ❥ㅤ ${\textsf{\color{#f2356e}stamps}}$ ( wip. ) </summary>
+</details>
+<br>
+
+<details align="right">
+<summary> ❥ㅤ ${\textsf{\color{#f2356e}links}}$ ( wip. ) </summary>
+</details>
+<br>
+
+<details align="right">
+<summary> ❥ㅤ ${\textsf{\color{#f2356e}prev. usernames!}}$ ( wip. ) </summary>
+voughtinc, moonchiip, oakhurstingit, bamboozling, volatiletimes </details>
+<br>
