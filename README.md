@@ -1,4 +1,4 @@
-<p align="center"> using old codee if you know it you know it, yawns..please don't use this code or the old one UNLESS you asked, tyy!! this goes for inspo as well :3 <br>
+<p align="center"> using old codee if you know it you know!!, yawns..please don't use this code or the old one UNLESS you asked, tyy!! <br> this goes for inspo as well :3 <br>
 making this pretty at somepoint...just fucking around rn </p>
 
 <p align="center">
