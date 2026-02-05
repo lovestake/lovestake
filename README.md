@@ -25,9 +25,9 @@ work in progress. ( 11.8.25 )
 <img src="https://komarev.com/ghpvc/?username=volatiletimes&color=741e2f&base=200&style=flat&label=_ _i_want_a_poptart_ _" /> <p align="center">
 <br>
   
-<img src="https://i.ibb.co/5h90mJpV/jizziesoapcandy16pngart.png"  align="left" width="40%"> <p align="center">   ${\textsf{\color{#f2356e}LYR}}$ <br> <img src="https://dividers.crd.co/assets/images/gallery04/1196d7bc.png?v=05d33f91">
-<p align="center"> ${\textsf{\color{#f2356e}Cello}}$ㅤᵒʳㅤ<i> Vulpine </i> ⠀⸝⠀ <i> Alyce.</i> <br> 19yo ( ${\textsf{\color{#f2356e}12.11}}$ )ㅤ♡ㅤHe⠀⸝⠀She₊ <br> text,, vsmppilled <br> ${\textsf{\color{#f2356e}˚₊·—̳͟͞͞♡⟢}}$ <br> textt!! <br> <img src="https://dividers.crd.co/assets/images/gallery04/1196d7bc.png?v=05d33f91">
-<p align="center">   ${\textsf{\color{#f2356e}LYR}}$
+<img src="https://i.ibb.co/5h90mJpV/jizziesoapcandy16pngart.png"  align="left" width="40%"> <p align="center">   ${\textsf{\color{#fc92c0}LYR}}$ <br> <img src="https://dividers.crd.co/assets/images/gallery04/1196d7bc.png?v=05d33f91">
+<p align="center"> ${\textsf{\color{#fc92c0}Cello}}$ㅤᵒʳㅤ<i> Vulpine </i> ⠀⸝⠀ <i> Alyce.</i> <br> 19yo ( ${\textsf{\color{#7ab55c}12.11}}$ )ㅤ♡ㅤHe⠀⸝⠀She₊ <br> text,, vsmppilled <br> ${\textsf{\color{#fc92c0}˚₊·—̳͟͞͞♡⟢}}$ <br> textt!! <br> <img src="https://dividers.crd.co/assets/images/gallery04/1196d7bc.png?v=05d33f91">
+<p align="center">   ${\textsf{\color{#7ab55c}LYR}}$
 <br>
 
 <p align="center">
@@ -35,32 +35,32 @@ work in progress. ( 11.8.25 )
 </p>
 
 <details align="right">
-<summary> ❥ㅤ ${\textsf{\color{#f2356e}mini⎯⎯extended.}}$ </summary>
+<summary> ❥ㅤ ${\textsf{\color{#fc92c0}mini⎯⎯extended.}}$ </summary>
 mrrpp
 </details>
 <br>
 
 <details align="right">
-<summary> ❥ㅤ ${\textsf{\color{#f2356e}userboxes}}$ ( wip. ) </summary>
+<summary> ❥ㅤ ${\textsf{\color{#7ab55c}userboxes}}$ ( wip. ) </summary>
 </details>
 <br>
 
 <details align="right">
-<summary> ❥ㅤ ${\textsf{\color{#f2356e}blinkies}}$ ( wip. ) </summary> 
+<summary> ❥ㅤ ${\textsf{\color{#fc92c0}blinkies}}$ ( wip. ) </summary> 
 </details>
 <br>
 
 <details align="right">
-<summary> ❥ㅤ ${\textsf{\color{#f2356e}stamps}}$ ( wip. ) </summary>
+<summary> ❥ㅤ ${\textsf{\color{#7ab55c}stamps}}$ ( wip. ) </summary>
 </details>
 <br>
 
 <details align="right">
-<summary> ❥ㅤ ${\textsf{\color{#f2356e}links}}$ ( wip. ) </summary>
+<summary> ❥ㅤ ${\textsf{\color{#fc92c0}links}}$ ( wip. ) </summary>
 </details>
 <br>
 
 <details align="right">
-<summary> ❥ㅤ ${\textsf{\color{#f2356e}prev. usernames!}}$ ( wip. ) </summary>
+<summary> ❥ㅤ ${\textsf{\color{#7ab55c}prev. usernames!}}$ ( wip. ) </summary>
 voughtinc, moonchiip, oakhurstingit, bamboozling, volatiletimes </details>
 <br>
