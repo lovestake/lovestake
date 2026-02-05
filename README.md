@@ -17,7 +17,7 @@ work in progress. ( 11.8.25 )
 <br>
   
 <p align="center">
-<img src="https://gifs4crds.carrd.co/assets/images/image07.gif?vca07fc73a" width="600" height="600%""/>
+<img src="https://64.media.tumblr.com/329942928298b83a8cb0751508569a72/70482e188b12d22a-92/s2048x3072/eb0760f78493a9e3225207b8945d8e4cf9038746.pnj" width="800" height="600%""/>
 </p>
 
 <p align="center">
@@ -31,7 +31,7 @@ work in progress. ( 11.8.25 )
 <br>
 
 <p align="center">
-<img src="https://gifs4crds.carrd.co/assets/images/image07.gif?vca07fc73a" width="600" height="600%""/>
+<img src="https://64.media.tumblr.com/329942928298b83a8cb0751508569a72/70482e188b12d22a-92/s2048x3072/eb0760f78493a9e3225207b8945d8e4cf9038746.pnj" width="800" height="600%""/>
 </p>
 
 <details align="right">
