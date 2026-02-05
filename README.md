@@ -5,11 +5,11 @@ making this pretty at somepoint...just fucking around rn </p>
 work in progress. ( 11.8.25 )
 <details align="center">
 <summary> checklist. </summary>
-  ✓ㅤmain parts (info, imgs, etc) <br>
-  ✓ㅤtop &. bottom dividers. <br>
+  ~ㅤmain parts (info, imgs, etc) <br>
+  ~ㅤtop &. bottom dividers. <br>
   ~ㅤstamps, blinkies, etc. <br>
   ~ㅤextended info. <br>
-  ✓ㅤmini dni &&. int area. <br>
+  ~ㅤmini dni &&. int area. <br>
   ~ㅤlinks <br>
   ~ㅤcreds. <br>
   
