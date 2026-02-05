@@ -1,5 +1,5 @@
 <p align="center"> using old codee if you know it you know!!, yawns..please don't use this code or the old one UNLESS you asked, tyy!! <br> this goes for inspo as well :3 <br>
-making this pretty at somepoint...just fucking around rn </p>
+making this pretty at somepoint...just fucking around rn. proper vsmp theme soon!!! </p>
 
 <p align="center">
 work in progress. ( 11.8.25 )
