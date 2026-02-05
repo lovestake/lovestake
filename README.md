@@ -25,7 +25,7 @@ work in progress. ( 11.8.25 )
 <img src="https://komarev.com/ghpvc/?username=lovestake&color=7ab55c&base=1000&style=flat&label=_ _i_want_a_poptart_ _" /> <p align="center">
 <br>
   
-<img src="https://64.media.tumblr.com/f38bdda5a41592b6a843c3fad277e71e/c5ba9fb25964826f-55/s640x960/dc66f2d211eeae3cd075a2d96068ed1f2501753b.pnj"  align="left" width="40%"> <p align="center">   ${\textsf{\color{#fc92c0}LYR}}$ <br> <img src="https://dividers.crd.co/assets/images/gallery04/1196d7bc.png?v=05d33f91">
+<img src="https://64.media.tumblr.com/87de1747323865add981bf7f06310e59/7f5005fe280421ad-5f/s1280x1920/01cd6bd4b9934e6e2cb85850f2ce628b12faae2a.pnj"  align="left" width="40%"> <p align="center">   ${\textsf{\color{#fc92c0}LYR}}$ <br> <img src="https://dividers.crd.co/assets/images/gallery04/1196d7bc.png?v=05d33f91">
 <p align="center"> ${\textsf{\color{#fc92c0}Cello}}$ㅤᵒʳㅤ<i> Vulpine </i> ⠀⸝⠀ <i> Alyce.</i> <br> 19yo ( ${\textsf{\color{#7ab55c}12.11}}$ )ㅤ♡ㅤHe⠀⸝⠀She₊ <br> text,, vsmppilled <br> ${\textsf{\color{#fc92c0}˚₊·—̳͟͞͞♡⟢}}$ <br> textt!! <br> <img src="https://dividers.crd.co/assets/images/gallery04/1196d7bc.png?v=05d33f91">
 <p align="center">   ${\textsf{\color{#7ab55c}LYR}}$
 <br>
