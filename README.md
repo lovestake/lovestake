@@ -62,5 +62,5 @@ mrrpp
 
 <details align="right">
 <summary> ❥ㅤ ${\textsf{\color{#7ab55c}prev. usernames!}}$ ( wip. ) </summary>
-voughtinc, moonchiip, oakhurstingit, bamboozling, volatiletimes </details>
+thranto, voughtinc, moonchiip, oakhurstingit, bamboozling, volatiletimes i had a lot others ok 💔 </details>
 <br>
