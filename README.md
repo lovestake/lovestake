@@ -14,7 +14,4 @@ hi text
 hi text
 </details>
 <br>
-<details align="center">
-<summary> ㅤ ᚐ⌣ྀི۪۪ ㅤ woah (wip) ㅤཋྀ </summary>
-hi text
-</details>
+<p align="center"> 𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎡 </p>
